@@ -29,8 +29,8 @@ MeidasTouch contributor with a professional background in facilitating honest di
 ---
 
 ### Tennessee Brando
-**Platforms:** [Instagram](https://instagram.com/tn_brando) · [TikTok](https://tiktok.com/@tn_brando) · [Spotify](https://open.spotify.com/artist/tennesseebrando)  
-**Contact:** [tennesseebrando.com](https://tennesseebrando.com) · [Patreon](https://patreon.com/tnbrando)  
+**Platforms:** [YouTube](https://www.youtube.com/@TennesseeBrando) · [Instagram](https://instagram.com/tn_brando) · [TikTok](https://tiktok.com/@tn_brando) · [Spotify](https://open.spotify.com/artist/tennesseebrando)  
+**Contact:**  [Patreon](https://patreon.com/tnbrando)  
 MeidasTouch contributor and self-described "Appalachian Progressive" who speaks directly to working-class Americans about authoritarianism and resistance. His musical background opens creative formats beyond straight commentary.
 
 ---
