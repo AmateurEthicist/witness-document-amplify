@@ -36,7 +36,7 @@ MeidasTouch contributor and self-described "Appalachian Progressive" who speaks 
 ---
 
 ### Trae Crowder (Liberal Redneck)
-**Platforms:** [YouTube](https://youtube.com/@TraeCrowderLiberalRedneck) · [Instagram](https://instagram.com/traecrowder)  
+**Platforms:** [YouTube](https://youtube.com/@TraeCrowderLiberalRedneck) · [Instagram](https://instagram.com/traecrowder) · [Facebook](https://www.facebook.com/traecrowder/)  
 **Contact:** [traecrowder.com](https://traecrowder.com)  
 Comedian and WellRED Comedy Tour founder who makes heavy political content accessible through humor. Particularly effective at explaining Southern and rural American politics to outside audiences. It is a perspective that is often missing from international coverage.
 
