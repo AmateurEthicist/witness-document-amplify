@@ -11,7 +11,6 @@ This is a curated starting point, not a closed list. These are creators already 
 
 ### Brian Tyler Cohen
 **Platforms:** [YouTube](https://youtube.com/@briantylercohen) · [Instagram](https://instagram.com/briantylercohen) · [Bluesky](https://bsky.app/profile/briantylercohen.bsky.social)  
-**Contact:** [linktr.ee/briantylercohen](https://linktr.ee/briantylercohen)  
 MSNBC contributor with 4.5M+ YouTube subscribers and an established interview format featuring top political and legal figures. Co-hosts *Democracy Watch* with Marc Elias. Already operating collaborative, legally-focused political content at scale.
 
 ---
