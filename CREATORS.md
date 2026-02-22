@@ -4,6 +4,7 @@
 
 This is a curated starting point, not a closed list. These are creators already doing versions of this work who we believe should know about each other.
 
+→ **Spot an error? Help keep this accurate — [open an issue on GitHub](https://github.com/AmateurEthicist/witness-document-amplify/issues)**  
 → **Don't see someone who belongs here? [Nominate them](https://amateurethicist.com/nominate/)**
 
 ---
