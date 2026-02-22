@@ -155,7 +155,7 @@ West Virginia-based organization rebuilding the post-coal economy through social
 
 ---
 
-*Know a resilience network or community organization doing similar work that belongs here? [Nominate them](https://amateurethicist.com/nominate).*
+*Know a resilience network or community organization doing similar work that belongs here? [Nominate them](https://amateurethicist.com/nominate/).*
 
 ---
 
