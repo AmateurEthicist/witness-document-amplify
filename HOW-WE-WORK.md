@@ -47,6 +47,29 @@ These people don't know each other yet. They should.
 
 ---
 
+## Who This Network Is For
+
+The communities most harmed by concentrated power, institutional failure, and the erosion of democratic norms are rarely the ones with the loudest platforms. That is not an accident. It is part of the same system this network exists to document.
+
+We are actively working against that pattern.
+
+This network seeks out creators and witnesses from communities that are directly experiencing what is being documented: immigrants and their families, Black and Indigenous communities, working-class and rural communities, communities in the Global South watching a familiar pattern unfold in a new country, and people whose relationship to power has never included the assumption that institutions would protect them.
+
+We are not looking for a token representative from each category. We are looking for voices that are already doing honest, grounded work and have not yet found the connections and amplification they deserve.
+
+Practically, this means:
+
+- Actively recruiting creators from BIPOC, Indigenous, immigrant, and working-class communities
+- Ensuring that "international perspective" means more than English-speaking Western countries
+- Recognizing that food sovereignty, land rights, and ecological resilience are political issues, not lifestyle content
+- Centering the experiences of people who have been living under versions of this for longer than most Americans have been paying attention
+
+If you are nominating a creator, we encourage you to ask yourself whether your list of nominations reflects the full range of people doing this work, or whether it reflects the part of that world you already move in.
+
+We are building this network as we go. We will get this wrong sometimes. We are committed to being corrected when we do.
+
+---
+
 ## What This Is Not
 
 **This is not a top-down organization.** There is no headquarters, no leadership structure, no approved messaging. It is a network: self-organizing, distributed, resilient by design.
