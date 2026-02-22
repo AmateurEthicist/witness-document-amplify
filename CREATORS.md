@@ -23,8 +23,7 @@ The premier US legal voice on voting rights and constitutional crises. Already c
 ---
 
 ### CoachD_Speaks
-**Platforms:** [Instagram](https://instagram.com/coachd_speaks) · [TikTok](https://tiktok.com/@coachd_speaks) · [LinkedIn](https://linkedin.com/in/coachdspeaks/)  
-**Contact:** [coachdspeaks.com](https://coachdspeaks.com)  
+**Platforms:** [Instagram](https://instagram.com/coachd_speaks) · [YouTube](https://www.youtube.com/@CoachD_Speaks) · [TikTok](https://tiktok.com/@coachd_speaks)
 MeidasTouch contributor with a professional background in facilitating honest dialogue on contentious political topics. Well-suited to cross-border conversation formats.
 
 ---
