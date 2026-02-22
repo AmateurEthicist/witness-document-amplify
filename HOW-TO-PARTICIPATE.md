@@ -7,7 +7,7 @@ You don't need a platform, a title, or anyone's permission to contribute to this
 
 ## If You Are a Creator
 
-Look through the [creator list](CREATORS.md). Find someone doing complementary work in another country. Reach out. Start a conversation. You don't need a formal collaboration proposal. A simple "I've been following your work and I think we should talk" is enough to start something real.
+Look through the [creator list](CREATORS.md). Find someone doing complementary work in another country. Reach out. Start a conversation. You don't need a formal collaboration proposal. A simple "I've been following your work and I think we should talk" is enough to start something real. [Consider adding yourself to the network.](https://amateurethicist.com/nominate)
 
 Some starting points:
 
