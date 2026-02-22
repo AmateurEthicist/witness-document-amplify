@@ -74,7 +74,11 @@ Satirist who specializes in dissecting lazy and dishonest media narratives. His 
 
 ## 🇨🇦 Canada
 
-*This section is currently empty. Nominations welcome — [submit here](https://forms.gle/PLACEHOLDER).*
+### Guard The Leaf 🍁
+
+**Platforms:** [YouTube](https://www.youtube.com/@GuardTheLeaf) (63K+ subscribers, Sept 2025, growing rapidly) · [Bluesky](https://bsky.app/profile/guardtheleaf.bsky.social) · [Reddit](https://reddit.com/r/GuardTheLeaf) · [Substack](https://substack.com/@guardtheleaf)  
+**Contact:** Via YouTube channel (email for collabs, per bio)  
+Anonymous Canadian creator covering Canada-U.S. tensions — sovereignty, the boycott, tourism, trade — from a grassroots perspective. Launched in late April 2025 and grew to 63,000+ subscribers within months. Explicitly open to interviews and collabs (stated in channel bio). Creator remains anonymous for personal safety reasons. Independently operated with no disclosed institutional funding.
 
 ---
 
@@ -155,7 +159,7 @@ West Virginia-based organization rebuilding the post-coal economy through social
 
 ---
 
-*Know a resilience network or community organization doing similar work that belongs here? [Nominate them](https://amateurethicist.com/nominate/).*
+*Know a resilience network or community organization doing similar work that belongs here? [Nominate them](https://amateurethicist.com/nominate).*
 
 ---
 
@@ -163,7 +167,7 @@ West Virginia-based organization rebuilding the post-coal economy through social
 
 Know a creator doing important work who belongs here? We want to hear about them.
 
-→ **[Submit a nomination](https://forms.gle/PLACEHOLDER)**
+→ **[Submit a nomination](https://amateurethicist.com/nominate/)**
 
 We are looking for creators who:
 
